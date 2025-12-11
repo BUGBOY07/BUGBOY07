@@ -79,7 +79,7 @@ Aixblock.io • Unguess.io • Coca-Cola • xto10x.com • getvero.com • othe
 ---
 
 ### 📫 Connect With Me  
-📧 Email: **melchizedekmk@gmail.com**  
+📧 Email: **bugboyzero7@gmail.com**  
 🔗 LinkedIn: **https://www.linkedin.com/in/m-k-rahul-rao-881568245**  
 🔗 GitHub: **https://github.com/eMKayRa0**
 
